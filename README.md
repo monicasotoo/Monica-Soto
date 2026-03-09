@@ -1,4 +1,4 @@
-# 💫 About Me:
+# MONICA SOTO
 Im a freshman at the George R. Brown School of Engineering and Computation at Rice Univeristy. My main focus of interest is the intersection of governance, education and computation. Im focusing on Computational Social Sciences
 
 
